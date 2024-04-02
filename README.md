@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Valentinoredexbr
 - 👀 I’m interested in programation
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me youtube:Redezxbr
 - 😄 Pronouns: ...
 - ⚡ Fun fact: footbal, desenhos, animes and games 
 
